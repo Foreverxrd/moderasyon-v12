@@ -1,1 +1,1 @@
-# moderasyon-v12
+Selamlar, Yakında paylaşacağım bir altyapıyı buraya bırakma kararı aldım guardlarim supervizor lerim fln bot işlerini salma kararı aldım yakında buraya bırakacak Supervizor paneli. Fln full gelişmiş sistem yetki artimi olsun içinde ws ws 100 starda atarım buraya iyi günler. 
